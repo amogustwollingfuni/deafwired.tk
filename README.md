@@ -1,0 +1,2 @@
+# deafwired.tk
+lmao funny
